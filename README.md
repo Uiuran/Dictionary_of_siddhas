@@ -7,5 +7,17 @@ http://rywiki.tsadra.org/index.php/Siddha
 
 ## Public Information
 
-The future and present - unrolling - work aims to collect public information related directly or correlated with name of the masters.
+The future and present - unrolling - work aims to collect public information related directly or correlated with the name of the masters.
 Further comprehensive representation of these public data will be appreciated as well.
+
+## References
+
+### For the names:
+- " Blazing Splendor
+The Memoirs of the Dzogchen Yogi
+Tulku Urgyen Rinpoche "
+
+### For the public data
+
+- http://rywiki.tsadra.org/
+- https://www.lotsawahouse.org/
